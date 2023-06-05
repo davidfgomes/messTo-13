@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @messTo-13
+- 👀 I’m interested in codes and ilustration
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on cool/fun ideas
+- 📫 How to reach me messTo#3572 (discord)
